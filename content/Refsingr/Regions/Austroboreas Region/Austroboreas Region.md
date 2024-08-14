@@ -1,0 +1,1 @@
+The Austroboreas Region is the largest land mass of Refsingr, the land is split into two distinct areas the [[Australis Region]] in the south and the [[Boreas Region]] in the north. 
